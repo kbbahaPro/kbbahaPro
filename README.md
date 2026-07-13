@@ -1,5 +1,5 @@
 # 💫 About Me:
-Software Engineer at Digiturism Lab
+Software Engineer and Founder @ TPLUS INNOVATION
 
 
 ## 🌐 Socials:
